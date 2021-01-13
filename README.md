@@ -1,2 +1,0 @@
-# saat.com
-kişisel site
